@@ -1,4 +1,4 @@
-Ain't shady__ I'm ___
+you hear that
 Like the prodigal son
 Pick a petal, eenie meenie minie mo, and flower
 You're the chosen one
