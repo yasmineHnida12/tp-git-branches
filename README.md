@@ -1,4 +1,4 @@
-Ain't shady__ I'm ___
+Ain't shady ________
 Like the prodigal son
 Pick a petal, eenie meenie minie mo, and flower
 You're the chosen one
@@ -27,7 +27,7 @@ Well, my left hand's free
 Well, my left hand's free
 Well, my left hand's free
 Oh, no
-Ain't shady ___ , ___
+Ain't shady  ___
 Like the prodigal son
 Pick a petal, eenie, meenie, minie, mo
 And flower you're the chosen one
